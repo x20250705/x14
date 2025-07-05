@@ -13,6 +13,6 @@
 影片画质高清，播放流畅，用户不必担心卡顿问题，享受无广告、不卡顿的高质量观影体验。同时，平台注重隐私保护，采用加密技术确保用户信息安全。
 总之，日本AV免费平台为广大影迷提供了便捷、安全、高清的观影选择，是追求高质量观影体验的理想平台。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/x20250705/x14 ）</span>
 
 
